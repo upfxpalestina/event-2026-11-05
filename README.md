@@ -1,12 +1,9 @@
-# Queer Cinema for Palestine
+# Palestine Social Event
 
-Screening
-
-8 June 2026, 18:00-20:00 
+5 November 2026, 18:30
 
 <br>
-Sala Aranyó<br> 
+Jardì de los Agües<br>
+Campus de la Ciutadella<br>
 Universitat Pompeu Fabra<br> 
-Roc Boronat 138, Barcelona<br>
-
 
